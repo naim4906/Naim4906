@@ -3,7 +3,7 @@
 #### hello its a presentation of me
 
 #### *About me :*
-My name is Naïm Haj Abouda and I'm 17year old. I live in angers , and I study in [Jean Moulin](https://jean-moulin.paysdelaloire.e-lyco.fr/)
+I'm 17year old. I live in angers , and I study in [Jean Moulin](https://jean-moulin.paysdelaloire.e-lyco.fr/)
 
 #### *My Hobbies :*
 I played basketball for 6 years, and judo for 5 year .
