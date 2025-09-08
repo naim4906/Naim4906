@@ -6,7 +6,7 @@
  and I study in [Jean Moulin](https://jean-moulin.paysdelaloire.e-lyco.fr/)
 
 #### *My Hobbies :*
-I played basketball for 6 years, and judo for 5 year .
+I played basketball f
 I also love to play video game .
 
 #### *later :*
